@@ -17,5 +17,5 @@
   2.こんばんは
   <details>
 <br>
-[ホグワーツ魔法学校への招待状](https://github.com/16-2505-083-3/enpitHP/ "こんばんは")
+[ホグワーツ魔法学校への招待状](https://github.com/16-2505-083-3/enpitHP/)
 ![入学に際しての持参物](https://publicdomainq.net/images/201609/19s/publicdomainq-0000782dcf.jpg"こんばんは")
