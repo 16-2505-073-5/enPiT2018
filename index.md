@@ -13,6 +13,6 @@
 <br>
 <details>
   <summary>開くな！</summary>
-  1. お前は開いた<br>
+  1. あなたは開いた<br>
   2. こんにちは
   </details>
