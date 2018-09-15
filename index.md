@@ -48,4 +48,5 @@
 <br>
 <br>
 # ご安心ください！
+<br>
 ![お慶び申し上げます](http://onlinemlmbiz.web.fc2.com/img/luckygirl.jpg)
