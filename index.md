@@ -4,6 +4,21 @@
 ![入学に際しての持参物](https://publicdomainq.net/images/201609/19s/publicdomainq-0000782dcf.jpg)
 
 ## 魔法は使えるようになりたいけどできるようになるか不安...
+#### 魔法使いになることは敷居が高そうに思いがちです
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+↓
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+↓
 <br>
 <br>
 <br>
@@ -11,12 +26,22 @@
 <br>
 <br>
 <br>
+↓
 <br>
 <br>
 <br>
 <br>
 <br>
 <br>
+↓
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+↓
 <br>
 <br>
 <br>
