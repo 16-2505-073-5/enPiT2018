@@ -14,3 +14,4 @@
 <details>
   <summary>開くな！</summary>
   お前は開いた
+  </details>
