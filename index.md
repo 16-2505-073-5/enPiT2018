@@ -12,7 +12,7 @@
 ~~よろしくお願いします~~
 <br>
 <details>
-  <summary>開くな！</summary>
+  <summary>開くな</summary>
   1. あなたは開いた<br>
   2. こんにちは
   </details>
