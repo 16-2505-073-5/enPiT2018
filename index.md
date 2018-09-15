@@ -13,5 +13,5 @@
 <br>
 <details>
   <summary>開くな！</summary>
-  お前は開いた
+  1. お前は開いた
   </details>
